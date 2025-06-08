@@ -1,0 +1,2 @@
+- Emotions: Kama, Krodha, Lobha, Moh, Mad, Matsarya
+- Hindu theology, arishadvarga or shadripu (Sanskrit: षड्रिपु; meaning the six enemies) are the six enemies of the mind, which are: **kama (Desire/Lust), krodha (Anger), lobha (Greed), mada (Ego), moha (Attachment), and matsarya (Jealousy)** additionally alasya (laziness) .

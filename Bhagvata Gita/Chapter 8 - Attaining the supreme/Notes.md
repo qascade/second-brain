@@ -1,0 +1,13 @@
+- Arjuna asks what is *Brahma*, *Adhyatama*, *Karma* and *Adibhuta*? 
+- Arjuna asks what is *Adiyagya*, how is that inside our bodies? How will a dying person remember you? 
+- Shri Bhagvana says 
+	- Brahma - The indestructible entity
+	- *Adhyatama* - The nature of Brahma
+	- *Karma* - The fruitive actions pertaining to creation of living bodies/material entities
+	- *Adidaiva* - SuryaDeva, IndraDeva, Shiva, BrahmaDeva, etc. 
+	- *AdiBhuta* - Ever changing material world
+	- *AdiYagya* - He's himself (lord of sacrifice)
+- [[Text 8.5]]: Whoever, on his death bed remembers Krishna, will eventually meet him 
+- [[Text 8.6]]: Whatever state the person remembers on his death bed, without doubt he will achieve that state. 
+- Its a rule that whoever has one who is constantly remembering *Parmatma* (through practice) will eventually become one with him
+- 
